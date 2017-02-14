@@ -8,7 +8,7 @@ These are a few of my favorite things:
 
 PUPPIES
 Raindrops on roses
-Whiskers on kittens
+Whiskers on DRAGONS
 Bright copper kettles
 Warm woolen mittens
 
